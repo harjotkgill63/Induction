@@ -14,7 +14,7 @@
 #### Further,SHRI ASHOK SINGLA(Financial Advisor) too interacted with students and helped them view their future with his practical insights and motivating words.
 #### At last, students visited their respective departments and labs where more information about academics was provided to them by various faculity member.
 #### Overall,it was a remarkable day for all CSE & IT students for them a powerful start to thier proffessional and academic life.
-## Day2 [01.08.25 FRIDAY}
+## Day2 {01.08.25 FRIDAY}
 #### Second day at GNDEC for CSE and IT students started by English proficiency test from 9:30 am to 10:30 am.Later on, Maths proficiency test was also conducted from 11:00 am to 12:00 pm,providing a great experience and opportunity for the students to identify their weaknesses and work on improving them.
 #### I would also like to mention about hardworking seniors who encouraged and inspired all the freshers by patiently helping and guiding them throughout the day making it a lot easier for students to start their college life.
 #### After tests, a break was of one hour was provided during which students were free to explore the campus.
